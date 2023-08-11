@@ -1,3 +1,6 @@
+![Cartão de Visita](https://webbranding.io/wp-content/uploads/2023/08/Cartao-de-visita-Paisagem-preto-cinza.jpg)
+
+
 # Hi, I'm Saulo Echeverria! 👋
 
 I'm a businessman by day and a dreamer by night. Striving for a balance between hard work and fun, I value a good laugh, engaging conversation, and spontaneous adventure. A lover of animals and nature, I'm always on the hunt for new knowledge and challenges.
