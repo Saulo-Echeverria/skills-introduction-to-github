@@ -21,7 +21,7 @@ Currently pursuing a degree in Computer Engineering, I'm learning:
 - **Programming**: Constantly exploring new technologies and languages.
 
 ## Connect with me 🌐
-- [LinkedIn](www.linkedin.com/in/saulo-echeverria-04543714b)
+- [LinkedIn](www.linkedin.com/in/saulo-echeverria)
 
 ## Projects 🛠️
 - **Agency Website**: Developed in WordPress, an example of my work in design and web development.
